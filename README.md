@@ -25,7 +25,6 @@ We design each Ethernet layout to support future scalability, so your business c
 
 To learn more, you can explore structured cabling services here:  
 **[Ethernet cabling Sandy Springs GA](https://www.j3ktech.com/services/structured-cabling/)**  
-(*Anchor text used once as requested*)
 
 ---
 
